@@ -8,4 +8,3 @@
 - Get a job as a Junior Web Developer
 - Expand my professional network
 - Become Agile certified
-lkpbnp[oim]
